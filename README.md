@@ -1,5 +1,5 @@
 # Induction-
-# Day 2
+# Day 5
 # Session with Dr. Lakhvir Singh Khana – CML In-charge
 
 **Dr. Lakhvir Singh Khana**, the in-charge of **CML**, spoke to us in the **auditorium**.  
