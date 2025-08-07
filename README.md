@@ -1,4 +1,8 @@
 # Induction-
+# Day 4 – Universal Human Values
+
+**Priya Darshani ma’am** told us that **Universal Human Values** such as truth, love, peace, and respect are important for living a good and meaningful life.  
+She explained that values like honesty, kindness, and responsibility help us become better human beings and build a peaceful society.
 # Day 5
 # Session with Dr. Lakhvir Singh Khana – CML In-charge
 
