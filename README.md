@@ -11,7 +11,8 @@ He shared valuable information about discipline, learning methods, and the impor
 His words were inspiring and motivated us to improve ourselves and take our studies seriously.
 Day 6 – Lecture by Dr. Amit Kamra (DMC In-charge)
 
-# Day 6, we attended a lecture in the **auditorium** by **Dr. Amit Kamra**, the in-charge of **DMC (Digital Marketing Cell)**.  
+# Day 6
+we attended a lecture in the **auditorium** by **Dr. Amit Kamra**, the in-charge of **DMC (Digital Marketing Cell)**.  
 He explained the growing importance of **Digital Marketing** in today’s digital age.  
 He discussed how digital skills can open new career opportunities for students.  
 Dr. Kamra also spoke about discipline, time management, and staying updated with modern technology.  
